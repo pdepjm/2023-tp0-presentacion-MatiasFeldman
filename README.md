@@ -1,7 +1,4 @@
-# 2023-tp0-presentacion-MatiasFeldman
-2023-tp0-presentacion-MatiasFeldman created by GitHub Classroom
-
-## Hola mi nombre es Matias Elian Feldman
+# Hola mi nombre es Matias Elian Feldman
 
 ##### *Debajo les hare una breve descrpcion sobre mi a los 19 años:*
 
