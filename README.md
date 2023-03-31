@@ -5,7 +5,7 @@
 
 ##### *Debajo les hare una breve descrpcion sobre mi a los 19 años:*
 
-- Mis gustos: Me encanta ir al gimnacio, llevar una buena alimentacion saludabla y salir con amigos de vez en cuando.
+- Mis gustos: Me encanta ir al gimnasio, llevar una buena alimentacion saludable y salir con amigos de vez en cuando.
 
 - Mis prioridades: En estos momentos estoy 100% comprometido con continuar mi recorrido en la carrera de ingenieria en sistemas. 
 
