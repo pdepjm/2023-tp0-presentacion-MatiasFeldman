@@ -9,8 +9,11 @@
 
 - Mis prioridades: En estos momentos estoy 100% comprometido con continuar mi recorrido en la carrera de ingenieria en sistemas. 
 
-- Mis metas: Viajar mucho y conocer diferentes lugares en el mundo.
+- Mis metas: Viajar mucho y conocer diferentes lugares.
 
 - Numero de legajo: 208.509-4.
 
-![IMG-2040](https://user-images.githubusercontent.com/129459131/229181698-67756c31-ae11-456f-b94e-7fdbc1b8cd87.jpg)
+___
+
+![IMG-2040](https://user-images.githubusercontent.com/129459131/229184179-a0a33eba-d54f-4b66-b26b-082df8b0a806.jpg)
+
